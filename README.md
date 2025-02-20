@@ -4,3 +4,5 @@ Facccio questo perche molte volte quando avevo cominciato mi avrebbe fatto piace
 buon contenuto di questo genere in lingua italiana, ma scarseggiavano parecchio... e ciò per me è stato
 abbastanza frustrante.
 Vi ringrazio molto spero possa essere utile .....
+
+PS: SOLO LA DESCRIZIONE INIZIALE DELLA MACCHINA è IN INGLESE PERCHè E' PRESA DAL SITO UFFICIALE DI HTB 
