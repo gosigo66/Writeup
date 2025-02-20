@@ -5,4 +5,4 @@ buon contenuto di questo genere in lingua italiana, ma scarseggiavano parecchio.
 abbastanza frustrante.
 Vi ringrazio molto spero possa essere utile .....
 
-PS: SOLO LA DESCRIZIONE INIZIALE DELLA MACCHINA è IN INGLESE PERCHè E' PRESA DAL SITO UFFICIALE DI HTB 
+PS: SOLO LA DESCRIZIONE INIZIALE DELLA MACCHINA è IN INGLESE PERCHE' E' PRESA DAL SITO UFFICIALE DI HTB 
